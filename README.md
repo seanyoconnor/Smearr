@@ -1,2 +1,0 @@
-# Smearr
-School kids only
